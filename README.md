@@ -1,2 +1,0 @@
-# manoj
-Web Designer
